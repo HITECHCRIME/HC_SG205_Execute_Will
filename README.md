@@ -20,7 +20,26 @@ Description.
 ## Lyrics
 
 ```
+https://www.youtube.com/watch?v=0pDGJQ6NF5E
 
+clutching to my heart, show them what I want
+never show em what I know, feelin like I'm gone
+gotta fold you into naught got figured out it's mental
+10 on 10 top decks on hold
+
+put me on the jury, neverending fury of
+free form willling execution
+retribution got will to stand and not say a word
+i will wait for my tribute and constitution
+
+judgemental
+the executioner of hatred
+
+put me on a hook, guarantee I hit the note
+I could be teacher, maybe you should take a note
+the boy got class, I be feelin hella bold
+I can see the gold,
+I ain't never going broke
 
 ```
 
