@@ -77,6 +77,7 @@ so before i made (it to) the top
 made my own demise
 along gone paths, is this true, 
 been facing wrath of gods, 
+no i mean the people, demis
 keen on tricking all ya 
 they told me it's enough
 but I know i can't stop it
