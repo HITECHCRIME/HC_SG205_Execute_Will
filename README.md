@@ -59,14 +59,17 @@ i will wait
 i will wait for my tribute and constitution yeah
 i will wait for my turn to break into x x x x 
 
-VERSE
+VERSE ? (under construction)
 you and i got the same case
-facing our own doubts ?
+facing our own doubts
 you must be feeling like a god
 blade you pushed
-you put it through my heart too low
+you put it through my heart 
+too low
 i'll gently throw it back
 when your time is gone
+just don't step back 
+i need my tribute done
 
 ```
 
