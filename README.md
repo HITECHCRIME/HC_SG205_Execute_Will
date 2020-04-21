@@ -70,6 +70,19 @@ VERSE ? (under construction)
 judgemental
 the executioner of hatred
 
+MISC
+i can see the signs
+i've been seering through the skies
+so before i made (it to) the top
+made my own demise
+along gone paths, is this true, 
+been facing wrath of gods, 
+keen on tricking all ya 
+they told me it's enough
+but I know i can't stop it
+can't drop it
+i been tellin on ya all
+
 ```
 
 ## Notes
