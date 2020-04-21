@@ -29,7 +29,6 @@ gotta fold you into naught
 got figured out it's mental
 10 on 10 top decks on hold
 
-VERSE (under construction)
 put me on the jury, neverending fury
 for free form willling execution
 retribution got a will to stand 
@@ -41,25 +40,6 @@ i will wait for my tribute and constitution yeah
 i will wait for my turn to break into x x x x 
 
 VERSE (under construction)
-judgemental
-the executioner of hatred
-
-CHORUS
-clutching to my heart
-show them what I want
-never show em what I know
-feeling like I'm gone
-
-gotta fold you into naught 
-got figured out it's mental
-10 on 10 top decks on hold
-
-SILENT BREAKDOWN
-i will wait
-i will wait for my tribute and constitution yeah
-i will wait for my turn to break into x x x x 
-
-VERSE ? (under construction)
 you and i got the same case
 facing our own doubts
 you must be feeling like a god
@@ -70,6 +50,25 @@ i'll gently throw it back
 when your time is gone
 just don't step back 
 i need my tribute done
+
+CHORUS
+clutching to my heart
+show them what I want
+never show em what I know
+feeling like I'm gone
+
+gotta fold you into naught 
+gotta figure out it's mental
+10 on 10 top decks on hold
+
+SILENT BREAKDOWN
+i will wait
+i will wait for my tribute and constitution yeah
+i will wait for my turn to break into x x x x 
+
+VERSE ? (under construction)
+judgemental
+the executioner of hatred
 
 ```
 
