@@ -37,7 +37,6 @@ and not say a word
 
 TRANSITION
 i will wait
-
 i will wait for my tribute and constitution yeah
 i will wait for my turn to break into x x x x 
 
@@ -55,9 +54,14 @@ gotta fold you into naught
 got figured out it's mental
 10 on 10 top decks on hold
 
+SILENT BREAKDOWN
+i will wait
+i will wait for my tribute and constitution yeah
+i will wait for my turn to break into x x x x 
 
-
-
+VERSE
+you and i got the same case
+facing our own doubts ?
 
 ```
 
