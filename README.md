@@ -62,6 +62,11 @@ i will wait for my turn to break into x x x x
 VERSE
 you and i got the same case
 facing our own doubts ?
+you must be feeling like a god
+blade you pushed
+you put it through my heart too low
+i'll gently throw it back
+when your time is gone
 
 ```
 
