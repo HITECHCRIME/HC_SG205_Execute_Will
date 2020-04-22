@@ -30,12 +30,12 @@ got figured out it's mental
 10 on 10 top decks on hold
 
 put me on the jury, neverending fury
-for free form willling execution
+free form willling execution
 retribution got a will to stand 
 and not say a word
 
 TRANSITION
-i will wait
+i will wait ("wait") downward)
 i will wait for my tribute and constitution yeah
 i will wait for my turn to break into x x x x 
 
